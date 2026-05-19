@@ -1,4 +1,4 @@
-# 
+# automatic Affinity Photo pour PC exécuteur est le meilleur Affinity Photo pour PC exécuteur avec remplissage sensible au contenu et préréglages d'exportation. Sécurisé, fiable et
 
 
 
